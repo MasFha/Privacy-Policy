@@ -37,5 +37,3 @@ If you have any questions or concerns regarding this Privacy Policy or the pract
 Thank you for trusting CLOUDY INJECTOR.
 
 ---
-
-This Privacy Policy ensures that your privacy is protected, and it reflects our commitment to transparency and security in handling your data.
